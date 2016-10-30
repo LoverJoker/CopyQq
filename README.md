@@ -7,4 +7,4 @@
 
 ![image](https://raw.githubusercontent.com/LoverJoker/CopyQq/master/CopyQQImg/123123.gif)
 
-![image](http://www.worlduc.com/FileSystem/18/2483/2330098/3f8ba34adbc941eea27414c3c9f9f47a.jpg)
+
